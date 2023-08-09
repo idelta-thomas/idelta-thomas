@@ -1,6 +1,6 @@
 🌟 About Us: Your Trusted Partner for Cutting-Edge Digital Media and IT Solutions 🌟
 
-Welcome to [Your Company Name], where innovation meets excellence in the world of digital media and IT services. With a passion for creativity and a commitment to technical excellence, we are your go-to destination for all things digital.
+Welcome to Delta-Productions, where innovation meets excellence in the world of digital media and IT services. With a passion for creativity and a commitment to technical excellence, we are your go-to destination for all things digital.
 
 🚀 Our Expertise 🚀
 
